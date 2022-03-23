@@ -1,0 +1,2 @@
+# Trabalho-TECC
+Questões resolvidas
